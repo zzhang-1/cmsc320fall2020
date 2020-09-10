@@ -1,1 +1,1 @@
-To be released on Thursday, 09/10
+To be released on Thursday, 09/15
